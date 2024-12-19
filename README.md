@@ -11,8 +11,6 @@
 
 - 📫 How to reach me **mosquerabustamante88@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAGYVRMQHzk/Pk8QUFJRg9zpyuHfxYWzVQ/view?utm_content=DAGYVRMQHzk&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h78e7957680](https://www.canva.com/design/DAGYVRMQHzk/Pk8QUFJRg9zpyuHfxYWzVQ/view?utm_content=DAGYVRMQHzk&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h78e7957680)
-
 - ⚡ Fun fact **I believe music and code are the perfect combo!**
 
 <h3 align="left">Connect with me:</h3>
